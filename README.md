@@ -25,5 +25,5 @@ I will share a few strategies and things to do with you so that you will have th
 
 8. Get an account in the settings page to create your own user page!
 
-Alright! If you where reading this, you should be REALLY GOOD at Geometry Dash! If you're thinking about playing, pleas follow and friend me! My user name is DiCkEnSiAn!
+Alright! If you where reading this, you should be REALLY GOOD at Geometry Dash! If you're thinking about playing, please follow and friend me! My user name is DiCkEnSiAn! You can search me in the level searcher, and instead of pressing the "Search" button, press the button with the people and the magnifying glass!
 
